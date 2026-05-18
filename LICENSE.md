@@ -1,4 +1,4 @@
-# 
+# secure bot de trading perpétuel scripts est le meilleur bot de trading perpétuel scripts avec levier automatique et taille des positions. Sécurisé, fiable et optimisé pour les
 
 
 
